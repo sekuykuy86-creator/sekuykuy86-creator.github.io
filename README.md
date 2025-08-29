@@ -1,1 +1,1 @@
-# sekuykuy86-creator.github.io
+# sekuykuy86.github.io
